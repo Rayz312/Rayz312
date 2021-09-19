@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rayz312
+- 👋 Hi, I’m Rayyan Mahtab
 - 👀 I’m interested in football
 - 🌱 I’m currently learning in RIT
 - 💞️ I’m looking to collaborate on many projects.
